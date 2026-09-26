@@ -5,3 +5,4 @@
 3. https://megaup.net/
 4. https://mitedrive.com/
 5. https://hxfile.co/
+6. https://berkas.co/
